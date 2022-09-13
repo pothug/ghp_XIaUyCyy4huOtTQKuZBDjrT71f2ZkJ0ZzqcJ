@@ -1,2 +1,0 @@
-# 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
-ansibi_git
